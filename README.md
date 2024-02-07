@@ -2,7 +2,7 @@
 
 
 - 🇨🇦  I’m currently living in Canada.
-- 🎓 I’m currently a grade 10 student.
+- 🎓 I’m currently a grade 12 student.
 - 🌎 I speak 3 languages. (Polish, English and French)
 - 🏂 I enjoy snowboarding and biking. 🚴‍♂️
 - ✈️ I've travelled to over 15 countries.
