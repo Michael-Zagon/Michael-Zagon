@@ -1,7 +1,4 @@
-### Hi there, I'm Michael
-
-
-- 📚 I love knowledge
+### Michael Zagon
 
 **Programming Languages**
 
